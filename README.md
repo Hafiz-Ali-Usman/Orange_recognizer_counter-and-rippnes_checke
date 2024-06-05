@@ -1,0 +1,1 @@
+# Orange_recognizer_counter-and-rippnes_checke
